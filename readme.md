@@ -1,6 +1,7 @@
 #SaveHamilton
 https://chng.it/rc7BprzcFd
-I am so done with this greedy and unforgivable school. This school has caused me so much insomina and stress trying to be good enough for any of you. 
+I am so done with this greedy and unforgivable school. This school has caused me so much insomina and stress trying to be good enough for any of you.
+And don't worry schools can't block github. If they try they are vulnerable to be sued by many companies because github hold some of the dependencies for school restrictions. Which would instantly throw our Computers down the drain by breaking them FOREVER.
 But not once was it good enough for any of these greedy staff members. This is my resignation log and I will never return
 I will perform one more act to just to prove im worth something other than the IT department for the school
 ATBEEF (Actually the best exploit ever found)
