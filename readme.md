@@ -1,3 +1,5 @@
+#SaveHamilton
+https://chng.it/rc7BprzcFd
 I am so done with this greedy and unforgivable school. This school has caused me so much insomina and stress trying to be good enough for any of you. 
 But not once was it good enough for any of these greedy staff members. This is my resignation log and I will never return
 I will perform one more act to just to prove im worth something other than the IT department for the school
@@ -49,7 +51,7 @@ Quarter 3 (Q3)	01/07/2025	03/12/2025	45
 Quarter 4 (Q4)	03/13/2025	05/29/2025	49
 -------------------------------------------------
 Now here is a teacher email sent to me in 3rd grade:
-<Janet> Maybe if you did better you woulden't be such a failure.
+"<Janet>" Maybe if you did better you woulden't be such a failure.
 ----------------------------------------------------------------------
 I will take full control and responsibility of what comes for me next. But at this point I could not care less. This school never onced said sorry to me, NOT ONCE.
 Do not let your childeren attend here. And yes i am aware that i violated the COC. But this is something in the handbook clearly stated:
